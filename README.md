@@ -2,5 +2,5 @@
 
   look at my son im so proud of him
 
-![image](https://github.com/user-attachments/assets/7b0554da-c394-452d-afb3-13b35ef8e91d)
+![image](https://github.com/user-attachments/assets/596afe87-4185-4896-9e7c-42c9447ed480)
 
